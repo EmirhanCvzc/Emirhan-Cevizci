@@ -1,4 +1,4 @@
-# Emirhan-Cevizci
+# Emirhan Cevizci
 
-## Projects
-### Project 1
+## Education
+- Bahcesehir University | Game Design | Master
